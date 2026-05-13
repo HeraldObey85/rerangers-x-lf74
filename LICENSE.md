@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Scripts smart is the best re:rangers x Script, featuring auto-sell and infinite resources. Safe and powerful for all your needs.
 
 
 
